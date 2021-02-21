@@ -10,4 +10,4 @@ print v
 ```
 6.  dont have work experience yet.  
 7.  Had enhanced study of physics and mathematics in school, now studying at the 2nd year at the university.  
-8.  Didn't pass any exams to check my level of english. Approximately it is B2-C1.
+8.  Didn't pass any exams to check my level of english. Approximately it is B2-C1. Can communicate freely.
