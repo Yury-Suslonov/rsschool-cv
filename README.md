@@ -1,1 +1,1 @@
-https://yury-suslonov.github.io/rsschool-cv/cv.html
+https://yury-suslonov.github.io/rsschool-cv/
